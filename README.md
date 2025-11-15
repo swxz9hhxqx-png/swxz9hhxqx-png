@@ -1,16 +1,25 @@
-## Hi there 👋
+# Sup EthanBloxFNF Here.
+<small>*ethan = my name, blox = roblox, fnf = friday night funkin* </small>
+<small>(PFP By [PH8NT0MH4WK](https://github.com/PH8NT0MH4WK))* 🔥 </small>
 
-<!--
-**swxz9hhxqx-png/swxz9hhxqx-png** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Associations
 
-Here are some ideas to get you started:
+### Co-Director For **YTFRU** 
+### Friends & Siblings with Many People
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ - Zenixian 
+ - Linkwaree 
+ - PH8NT0MH4WK 
+ - and **More!**
+
+## About Me
+
+I am taken 💘
+
+I like Roblox as well as Friday Night Funkin'
+
+[Main Account](https://github.com/EthanBloxFNF) got suspended so this is my new Main Account.
+
+Hope to see more in the *future*!
+
+<small>Life is like riding a bicycle. To keep your balance, you must keep moving. Along with your hopes and dreams for the future! ;) </small>
