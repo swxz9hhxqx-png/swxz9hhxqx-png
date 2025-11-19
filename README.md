@@ -18,7 +18,7 @@ I am taken 💘
 
 I like Roblox as well as Friday Night Funkin'
 
-[Main Account](https://github.com/EthanBloxFNF) got suspended so this is my new Main Account.
+[Main Account](https://github.com/EthanBloxFNF) Is No Longer Suspended Thanks Pinto!
 
 Hope to see more in the *future*!
 
